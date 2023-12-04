@@ -7,7 +7,7 @@ You are the type of person that dosen't take NO for an answer, aren't you, you f
 
 come on your fucks lets create a new kind of democrat in the democerat laboratory, where you cant criticize them because we will worship them. Come on guys let's go make another monster demon to worship. Let's go to teh lab. The science lab. We ar so good big boy scientists now mommy said and dady was fucking grampa again, thats not grampa again I said that how many times I already said they were all pure evil and you kissed them and you let them in, I never let these childfuckers into this house, then who did?
 
-<img src="https://github.com/nathanielburman/homosexuality-is-why-I-have-no-girlfriends/blob/main/11234dream_TradingCard.jpg" width="600px"></img>
+<img src="https://github.com/nathanielburman/homosexuality-is-why-I-have-no-girlfriends/blob/main/112344dream_TradingCard.jpg" width="600px"></img>
 
 Let's all go to the Store. Vamos! Shopping! Let's all go to the store and buy soem really nice things for nathaniel. Yeah that sounds nice right now.
 
