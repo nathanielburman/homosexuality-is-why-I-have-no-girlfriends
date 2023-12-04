@@ -16,3 +16,7 @@ now there are hypocrite incel fake hypocrites. fake incels faking hypocrosy itse
 ...
 
 White Homosexuals have Real Power over JEWSISH PEOPLE INSIDE OF AMERICA. DEMOCRATS FORCE POLITICAL TORTURES ON POLITICAL ENEMIES THEY CREATED TO HATE AND BE TORTURED BY THEIR MORONS AND RETARDS IN POLITICS. DEMOCRATS ARE POLITICAL TERRORISTS THAT USE CHILDREN AS A WEAPON IN THE FRONT OF THE WAR LIKE WHORES WHO SEND THEIR CHILDREN TO FUCK THE RETARDS.
+
+...
+
+it's never political actually. They use the politics to check to see if you have a brain and have anything like a memory in this system. Then they kill you. They kill you and then you submit to their rule. That is what democrats do to people to make them submit. They force homosexuality on them. Every second of the day. Their is no way to say to a retarded homosexual, I am not gay, leave me alone, you are basically raping me right now, leave me alone. They don't understand it. Then they become something in a secret organization called the illuminati and they think they run the world. From Florida. Live from a LGBT+++ cult in Sounth Florida.
