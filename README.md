@@ -26,3 +26,7 @@ it's never political actually. They use the politics to check to see if you have
 ...
 
 There are organizations of people who hate me. I am completely cast off from anyone who can help me. All I want is to kill my captors and escape from this prison.
+
+...
+
+theres a roumour going around in democrat circles:  dont say gay and slavery in the same sentence... hush hush slaves.
