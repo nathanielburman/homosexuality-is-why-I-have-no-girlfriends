@@ -9,7 +9,7 @@ come on your fucks lets create a new kind of democrat in the democerat laborator
 
 <img src="https://github.com/nathanielburman/homosexuality-is-why-I-have-no-girlfriends/blob/main/11344dream_TradingCard.jpg" width="600px"></img>
 
-Let's all go to the Store. Vamos! Shopping! Let's all go to the store and buy soem really nice things for nathaniel. Yeah that sounds nice right now.
+Let's all go to the Store. Vamos! Shopping! Let's all go to the store and buy some really nice things for nathaniel. Yeah that sounds nice right now. Happy Holy Days! What is Holy about any day? Kill this slave now!
 
 ...
 
