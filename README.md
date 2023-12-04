@@ -13,3 +13,6 @@ Let's all go to the Store. Vamos! Shopping! Let's all go to the store and buy so
 
 now there are hypocrite incel fake hypocrites. fake incels faking hypocrosy itself. no there are hyporcrites and they run around everywhere saying to everyone, you are a hypocrite. and these young demons run amok calling everyone hypocrites. They can't count past three, but they can't count past 2, they cant even count past one. Them selves. 
 
+...
+
+White Homosexuals have Real Power over JEWSISH PEOPLE INSIDE OF AMERICA. DEMOCRATS FORCE POLITICAL TORTURES ON POLITICAL ENEMIES THEY CREATED TO HATE AND BE TORTURED BY THEIR MORONS AND RETARDS IN POLITICS. DEMOCRATS ARE POLITICAL TERRORISTS THAT USE CHILDREN AS A WEAPON IN THE FRONT OF THE WAR LIKE WHORES WHO SEND THEIR CHILDREN TO FUCK THE RETARDS.
