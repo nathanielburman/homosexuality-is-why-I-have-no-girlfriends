@@ -30,3 +30,7 @@ There are organizations of people who hate me. I am completely cast off from any
 ...
 
 theres a roumour going around in democrat circles:  dont say gay and slavery in the same sentence... hush hush slaves.
+
+...
+
+and inside of this silence. inside of a complete lack of feedback from the world. I know to HATE YOU ALL.
