@@ -20,3 +20,7 @@ White Homosexuals have Real Power over JEWSISH PEOPLE INSIDE OF AMERICA. DEMOCRA
 ...
 
 it's never political actually. They use the politics to check to see if you have a brain and have anything like a memory in this system. Then they kill you. They kill you and then you submit to their rule. That is what democrats do to people to make them submit. They force homosexuality on them. Every second of the day. Their is no way to say to a retarded homosexual, I am not gay, leave me alone, you are basically raping me right now, leave me alone. They don't understand it. Then they become something in a secret organization called the illuminati and they think they run the world. From Florida. Live from a LGBT+++ cult in Sounth Florida.
+
+...
+
+There are organizations of people who hate me. I am completely cast off from anyone who can help me. All I want is to kill my captors and escape from this prison.
