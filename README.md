@@ -9,4 +9,7 @@ come on your fucks lets create a new kind of democrat in the democerat laborator
 
 Let's all go to the Store. Vamos! Shopping! Let's all go to the store and buy soem really nice things for nathaniel. Yeah that sounds nice right now.
 
+...
+
+now there are hypocrite incel fake hypocrites. fake incels faking hypocrosy itself. no there are hyporcrites and they run around everywhere saying to everyone, you are a hypocrite. and these young demons run amok calling everyone hypocrites. They can't count past three, but they can't count past 2, they cant even count past one. Them selves. 
 
