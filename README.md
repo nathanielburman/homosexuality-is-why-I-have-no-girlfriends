@@ -34,3 +34,7 @@ theres a roumour going around in democrat circles:  dont say gay and slavery in 
 ...
 
 and inside of this silence. inside of a complete lack of feedback from the world. I know to HATE YOU ALL.
+
+...
+
+democrats will not let Republicans grow into adulthood. By law I need civil rights war.
