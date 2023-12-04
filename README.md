@@ -38,3 +38,5 @@ and inside of this silence. inside of a complete lack of feedback from the world
 ...
 
 democrats will not let Republicans grow into adulthood. By law I need civil rights war.
+
+they are pure wevil for power. They are hiding their power-evil with sexuality lies.
